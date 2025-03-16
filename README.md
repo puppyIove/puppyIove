@@ -1,2 +1,2 @@
 
-[![](https://files.catbox.moe/buwkhg.png)](https://rentry.co/partyinginfecter)
+![](https://files.catbox.moe/ihbopi.png)
