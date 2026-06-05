@@ -1,6 +1,7 @@
-⠀⠀⠀⠀⠀⠀<img src="https://komarev.com/ghpvc/?username=puppyiove&color=eba776&style=flat-square&label=♡&base=13693"> ✦⠀⠀⠀⠀⠀⠀⠀ [![](https://files.catbox.moe/tbnekm.png)](https://rentry.co/hares) ![](https://files.catbox.moe/0d1su8.png) [![](https://files.catbox.moe/go58c5.png)](https://mio.atabook.org)
 
-![](https://files.catbox.moe/3fgd49.png)
+‎‎ ‎ ‎‎ ‎‎
+ ‎‎ ‎ ‎‎<img width="575" height="880" alt="unstable trio" src="https://github.com/user-attachments/assets/8633012a-9dfb-4c46-ad1b-4dee9364d185" />
+
 
 
 
